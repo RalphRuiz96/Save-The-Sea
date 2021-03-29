@@ -17,7 +17,7 @@
 4. ### Many observers, people who watch if **ILLEGAL** fishing is being carried out, are not only being bribed, they are being killed if they don't take the bribe! 
     - [Deaths of fishery observers](https://www.theguardian.com/environment/2020/may/22/disappearances-danger-and-death-what-is-happening-to-fishery-observers)
 
-5. ### Tax payer money is being used to invest in fishing. 
+5. ### Tax payer money is being used to invest in fishing!
     > *"So if you think about it, it's really shocking that we subsidize the fishing industry, somewhere in the region of $35,000,000,000, which is the same amount that, according to the United Nations, we'd need to combat world hunger."* (Hicks, 2021: Seaspiracy) 
 
 6. ### Fishing operations also causes other economies to be destroyed!
