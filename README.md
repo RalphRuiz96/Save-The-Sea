@@ -18,7 +18,7 @@
     - [Deaths of fishery observers](https://www.theguardian.com/environment/2020/may/22/disappearances-danger-and-death-what-is-happening-to-fishery-observers)
 
 5. ### Tax payer money is being used to invest in fishing. 
-    > *"So if you think about it, it's really shocking that we subsidize the fishing industry, somewhere in the region of $35,000,000,000, which is the same amount that, according to the United Nations, we'd need to combat world hunger." (Hicks, 2021: Seaspiracy) 
+    > *"So if you think about it, it's really shocking that we subsidize the fishing industry, somewhere in the region of $35,000,000,000, which is the same amount that, according to the United Nations, we'd need to combat world hunger."* (Hicks, 2021: Seaspiracy) 
 
 6. ### Fishing operations also cause other economies to be destroyed!
     - [The Great Fish Robbery That Costs Africa Billions](https://www.cnn.com/2016/07/14/africa/great-fish-robbery#:~:text=Free%2Dfor%2Dall%20crime%20spree&text=West%20Africa%20has%20become%20a,around%202%25%20of%20its%20GDP.)
