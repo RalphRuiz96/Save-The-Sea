@@ -12,6 +12,7 @@
 
 3. ### Other animals become endangered due to fishing, legal/illegal, turtles are a great example because many species of turtles face extinction!
     This will increase the rate of oceans being severly harmed. 
+    - [Why Can Bycatch be a problem?](https://www.fisheries.noaa.gov/insight/understanding-bycatch#:~:text=Bycatch%20can%20negatively%20affect%20species,prey%20and%20sometimes%20habitat%20damage.)
 
 4. ### Many observers, people who watch if **ILLEGAL** fishing is being carried out, are not only being bribed, they are being killed if they don't take the bribe! 
     - [Deaths of fishery observers](https://www.theguardian.com/environment/2020/may/22/disappearances-danger-and-death-what-is-happening-to-fishery-observers)
