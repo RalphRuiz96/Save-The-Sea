@@ -20,7 +20,7 @@
 5. ### Tax payer money is being used to invest in fishing. 
     > *"So if you think about it, it's really shocking that we subsidize the fishing industry, somewhere in the region of $35,000,000,000, which is the same amount that, according to the United Nations, we'd need to combat world hunger."* (Hicks, 2021: Seaspiracy) 
 
-6. ### Fishing operations also cause other economies to be destroyed!
+6. ### Fishing operations also causes other economies to be destroyed!
     - [The Great Fish Robbery That Costs Africa Billions](https://www.cnn.com/2016/07/14/africa/great-fish-robbery#:~:text=Free%2Dfor%2Dall%20crime%20spree&text=West%20Africa%20has%20become%20a,around%202%25%20of%20its%20GDP.)
     - [Illegal industrial fishing hampers small-scale African fisheries](https://news.mongabay.com/2020/02/illegal-industrial-fishing-hampers-small-scale-african-fisheries/)
 
