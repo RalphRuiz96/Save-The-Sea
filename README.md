@@ -34,7 +34,7 @@
 # Conclusion: In order to make a global change it is **STRONGLY** suggested to stop eating fish!
 Fish is a crucial part of a diet, but it is not the only diet available in today's market, please share this article with others to inform them about the disgraceful things that are going on in our world today. There are only two things that you need to do to start change and refresh sealife and nature overall, it is simply to stop eating fish and to share this article with poeple. 
 
-There is a link to a YouTube video that is a trailer of the documentary called: Seaspiracy, which goes in depth about this article's topic, watch it if you would like to know more about this topic. 
+There is a link to a YouTube video that is a trailer of the documentary called: Seaspiracy, which goes in depth about the topic of this article, watch it if you would like to know more about this topic. 
 
 The Link to youtube [Seaspiracy](https://youtu.be/1Q5CXN7soQg?t=38)
 
