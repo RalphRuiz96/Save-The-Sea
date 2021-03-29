@@ -10,7 +10,7 @@
     > *"People should not be afraid of having sharks, they should be afraid of not having sharks in the oceans. The sharks keep our oceans healthy, they keep fish stocks healthy, they keep the ecosystems alive, they keep our coral reefs alive. If we don't have these sharks, if these sharks get finned into extinction then the ocean is going to turn into a swamp and guess whose gonna die next? Us."* (de Gelder, 2021: Seaspiracy) 
     - [If the Ocean Dies, We All Die!](https://seashepherd.org/2015/09/29/if-the-ocean-dies-we-all-die/) 
 
-3. ### Other animals become endangered due to fishing, legal/illegal, turtles are a great example because many species of turtles face extinction!
+3. ### Other animals become endangered due to fishing, turtles are a great example because many species of turtles face extinction!
     This will increase the rate of oceans being severly harmed. 
     - [Why Can Bycatch be a problem?](https://www.fisheries.noaa.gov/insight/understanding-bycatch#:~:text=Bycatch%20can%20negatively%20affect%20species,prey%20and%20sometimes%20habitat%20damage.)
 
