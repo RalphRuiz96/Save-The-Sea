@@ -14,7 +14,7 @@
 4. ### Many observers, people who watch if **ILLEGAL** fishing is being carried out, are not only being bribed, they are being killed if they don't take the bribe! 
     - [Deaths of fishery observers](https://www.theguardian.com/environment/2020/may/22/disappearances-danger-and-death-what-is-happening-to-fishery-observers)
 5. ### The same organizations that are behind fishing carry out other crimes like drug trafficking, human trafficking and a lot of other crimes. 
-    - > *"When we look at fisheries crimes we have to look at it within the contexct of transnational organized crime, and the same syndicates that are behind illegal fishing are the same criminal groups that are behind drug trafficking, human trafficking and other crimes."* (Hammarstedt, 2021: Seaspiracy) 
+    > *"When we look at fisheries crimes we have to look at it within the contexct of transnational organized crime, and the same syndicates that are behind illegal fishing are the same criminal groups that are behind drug trafficking, human trafficking and other crimes."* (Hammarstedt, 2021: Seaspiracy) 
 7. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying over seas!
 
 
