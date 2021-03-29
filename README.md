@@ -1,4 +1,4 @@
-# Stop eating fish, you are taking part in helping bad people invest in a business where sealife, nature and people are being killed!
+# Stop eating fish, you are taking part in helping bad people invest in businesses where sealife, nature and people are being killed!
 
 ## The list of facts along with references to these facts are listed down below!
 
