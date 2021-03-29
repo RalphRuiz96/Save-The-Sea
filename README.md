@@ -7,7 +7,7 @@
     - [73,000,000 Sharks Found DEAD on this beach](https://www.youtube.com/watch?v=WeIEaHAXYbo)
 
 2. ### Sealife that go extinct will cause the eventual death of existing oceans, and then it **WILL** lead to our own death!
-    > #### "People should not be afraid of having sharks, They should be afraid of not having sharks in the oceans. The sharks keep our oceans healthy, they keep fish stocks healthy, they keep the ecosystems alive, they keep our coral reefs alive. If we don't have these sharks, if these sharks get finned into extinction then the ocean is going to turn into a swamp and guess whose gonna die next? Us." (de Gelder, 2021: Seaspiracy) 
+    > "People should not be afraid of having sharks, they should be afraid of not having sharks in the oceans. The sharks keep our oceans healthy, they keep fish stocks healthy, they keep the ecosystems alive, they keep our coral reefs alive. If we don't have these sharks, if these sharks get finned into extinction then the ocean is going to turn into a swamp and guess whose gonna die next? Us." (de Gelder, 2021: Seaspiracy) 
     - [If the Ocean Dies, We All Die!](https://seashepherd.org/2015/09/29/if-the-ocean-dies-we-all-die/) 
 3. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying over seas!
 
