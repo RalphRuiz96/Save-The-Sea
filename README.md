@@ -22,7 +22,7 @@
 
 6. ### Fishing operations also cause other economies to be destroyed!
     - [The Great Fish Robbery That Costs Africa Billions](https://www.cnn.com/2016/07/14/africa/great-fish-robbery#:~:text=Free%2Dfor%2Dall%20crime%20spree&text=West%20Africa%20has%20become%20a,around%202%25%20of%20its%20GDP.)
-7. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying over seas!
+7. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying overseas!
 
 
 
