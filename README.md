@@ -28,7 +28,7 @@
     - [Ebola Viral Disease in West Africa: a Threat to Global Health, Economy and Political Stability](https://news.mongabay.com/2020/02/illegal-industrial-fishing-hampers-small-scale-african-fisheries/)
 
 8. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying overseas!
-    Keep in mind that the links that are provided within this website are just a few cases that are happening today, slavery is worst now than it ever was in **HISTORY**
+    Keep in mind that the links that are provided within this website are just a few cases that are happening today, slavery, for example, is worst now than it ever was in **HISTORY!**
     - [Shrimp sold by global supermarkets is peeled by slave labourers in Thailand](https://www.theguardian.com/global-development/2015/dec/14/shrimp-sold-by-global-supermarkets-is-peeled-by-slave-labourers-in-thailand)
 
 
