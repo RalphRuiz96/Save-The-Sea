@@ -17,10 +17,10 @@
 4. ### Many observers, people who watch if **ILLEGAL** fishing is being carried out, are not only being bribed, they are being killed if they don't take the bribe! 
     - [Deaths of fishery observers](https://www.theguardian.com/environment/2020/may/22/disappearances-danger-and-death-what-is-happening-to-fishery-observers)
 
-5. ### Tax payer money is being used to invest in fishing!
+5. ### Tax payer money is being used to invest in fishing, this is a problem because we are investing in the deaths of sea life, nature and people!
     > *"So if you think about it, it's really shocking that we subsidize the fishing industry, somewhere in the region of $35,000,000,000, which is the same amount that, according to the United Nations, we'd need to combat world hunger."* (Hicks, 2021: Seaspiracy) 
 
-6. ### Fishing operations also causes other economies to be destroyed!
+6. ### Fishing operations also causes other economies to be destroyed, the death of some of the countires in Africa are close to 700,000 because of commercial fishing carrying out its operation in local African fishing areas!
     - [The Great Fish Robbery That Costs Africa Billions](https://www.cnn.com/2016/07/14/africa/great-fish-robbery#:~:text=Free%2Dfor%2Dall%20crime%20spree&text=West%20Africa%20has%20become%20a,around%202%25%20of%20its%20GDP.)
     - [Illegal industrial fishing hampers small-scale African fisheries](https://news.mongabay.com/2020/02/illegal-industrial-fishing-hampers-small-scale-african-fisheries/)
 
