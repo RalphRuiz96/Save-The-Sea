@@ -9,8 +9,10 @@
 2. ### Sealife that go extinct will cause the eventual death of existing oceans, and then it **WILL** lead to our own death!
     > *"People should not be afraid of having sharks, they should be afraid of not having sharks in the oceans. The sharks keep our oceans healthy, they keep fish stocks healthy, they keep the ecosystems alive, they keep our coral reefs alive. If we don't have these sharks, if these sharks get finned into extinction then the ocean is going to turn into a swamp and guess whose gonna die next? Us."* (de Gelder, 2021: Seaspiracy) 
     - [If the Ocean Dies, We All Die!](https://seashepherd.org/2015/09/29/if-the-ocean-dies-we-all-die/) 
-3. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying over seas!
-4. ### Observers, people who watch if **ILLEGAL** fishing is being carried out, are not only being bribed, they are being killed if they don't take the bribe! 
+3. ### Other animals become endangered due to fishing, legal/illegal, turtles are a great example because many species of turtles face extinction!
+    - This will increase the rate of oceans being severly harmed. 
+4. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying over seas!
+5. ### Observers, people who watch if **ILLEGAL** fishing is being carried out, are not only being bribed, they are being killed if they don't take the bribe! 
 
 
 The Link to youtube [Seaspiracy](https://youtu.be/1Q5CXN7soQg?t=38)
