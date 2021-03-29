@@ -4,6 +4,7 @@
 
 1. Wales, sharks and dolphins are dying at an alarming rate!
     - [337 Wales dead on shore](https://www.nationalgeographic.com/animals/article/151120-worlds-largest-whale-stranding-sei-chile-animals#:~:text=The%20cause%20of%20the%20massive,sei%20whales%2C%20which%20are%20endangered.)
+    - [73,000,000 Sharks Found DEAD on this beach](https://www.youtube.com/watch?v=WeIEaHAXYbo)
 2. Sealife that die will cause the death of existing oceans, and then it **WILL** lead to our own death!
 
 
