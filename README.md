@@ -24,7 +24,7 @@
     - [The Great Fish Robbery That Costs Africa Billions](https://www.cnn.com/2016/07/14/africa/great-fish-robbery#:~:text=Free%2Dfor%2Dall%20crime%20spree&text=West%20Africa%20has%20become%20a,around%202%25%20of%20its%20GDP.)
     - [Illegal industrial fishing hampers small-scale African fisheries](https://news.mongabay.com/2020/02/illegal-industrial-fishing-hampers-small-scale-african-fisheries/)
 
-7. ### Due to fishing operations, enhanced wildlife hunting and bush meat consumption had been initialized and has caused **THE** ebola epidemics!
+7. ### Due to fishing operations, enhanced wildlife hunting and bush meat consumption has been initialized and has caused **THE** ebola epidemics!
     - [Ebola Viral Disease in West Africa: a Threat to Global Health, Economy and Political Stability](https://news.mongabay.com/2020/02/illegal-industrial-fishing-hampers-small-scale-african-fisheries/)
 
 8. ### People, of all ages, are being enslaved to do forced labor, the death rate is more than U.S. troops dying overseas!
